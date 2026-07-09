@@ -11,5 +11,11 @@ Dumbell rows 4 sets
 Australian Pull over 4 sets
 Dumbell curls 4 sets
 
+Wednesday 
 
+Rest Day
+
+Thursday
+Pike Pushups *4 sets
+Shrugs 4 sets
 
